@@ -1,1 +1,7 @@
-deneme2
+<img width="332" height="152" alt="indir" src="https://github.com/user-attachments/assets/c7e1282a-1df6-42a0-a46c-7dfa413ba223" />Türkiye, resmî adıyla Türkiye Cumhuriyeti, topraklarının büyük bölümü Batı Asya'da Anadolu'da, diğer bir bölümü ise Güneydoğu Avrupa'nın uzantısı Doğu Trakya'da olan kıtalararası bir ülkedir. Batıda Bulgaristan ve Yunanistan, doğuda Gürcistan, Ermenistan, İran ve Azerbaycan, güneyde ise Irak ve Suriye ile sınır komşusudur. Güneyini Kıbrıs ve Akdeniz, batısını Ege Denizi, kuzeyini ise Karadeniz çevreler. Marmara Denizi ise İstanbul Boğazı ve Çanakkale Boğazı ile birlikte Anadolu'yu Trakya'dan, yani Asya'yı Avrupa'dan ayırır. Resmî olarak laik bir devlet olan Türkiye'de nüfusun çoğunluğu Müslümandır. Ankara, Türkiye'nin başkenti ve ikinci en kalabalık şehri; İstanbul ise, Türkiye'nin en kalabalık şehri, ekonomik merkezi ve aynı zamanda Avrupa'nın en kalabalık şehridir
+<img width="450" height="579" alt="kurtulus-savasi-donemindeki-hizmetleri_758_1526905200" src="https://github.com/user-attachments/assets/78c051e9-25b8-46ef-a4f1-32297fec91d9" />
+13. yüzyılın sonlarından itibaren Batı Anadolu'daki Türk beyliklerinden biri olarak ön plana çıkan ve bağımsızlık kazanan Osmanlılar, 14. yüzyılda Balkan topraklarında gerçekleştirdiği fetihlerle büyük bir güç hâline geldi ve Anadolu'daki diğer Türk beylikleri üzerinde de hâkimiyet kurdu. Osmanlılar, 1453 yılında II. Mehmed'in İstanbul'u fethederek Bizans İmparatorluğu'na son vermesiyle imparatorluk hâline geldi. İmparatorluk, zirvesini 16. yüzyılda, özellikle I. Süleyman döneminde yaşadı. 1683 yılındaki II. Viyana Kuşatması sonrasında gelen bozgun ve 15 sene süren Kutsal İttifak Savaşları sonucunda Osmanlı İmparatorluğu'nun Avrupa'ya karşı üstünlüğü sona erdi.
+
+
+
+
